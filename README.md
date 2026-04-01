@@ -27,6 +27,10 @@ if i'm alone, it's very likely that i am offtab, so if you want to talk to me, p
 </details>
 </br>
 </br>
+<p>
+  <a href="https://drawme.share-on.me/iwkrwF5NEb">send me woodblock fanart on my drawing box it will make me very happy ok</a>
+</p>
+</br>
   <p>
     ${\textsf{\color{#e66a39}(probably) still a wip}}$
   </p>
